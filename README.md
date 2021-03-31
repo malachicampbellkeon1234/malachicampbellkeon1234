@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @malachicampbellkeon1234/@malachicampbellkeon1234
 - 👀 I’m interested in ... Helping @malachicampbellkeon1234 increase his API to a level 29 or better with the manifest permissions to be able to manifest on all levels and platforms to @malachicampbellkeon1234's intent.
-- 🌱 I’m currently ...Adding @malachicampbellkeon1234 a code that allows @malachicampbellkeon1234 to have 15 levels of subliminal conversation and understandin.
+- 🌱 I’m currently ...Adding @malachicampbellkeon1234 a code that allows @malachicampbellkeon1234 to have 10 levels of subliminal conversation and understandin.
  while @malachicampbellkeon1234 builds my dependencies and makes sure that noone without the same dependencies can take away my name or my builder.
  Stolen early before I was finish
 But won't be a stolen again. So no fear shall be in @malachicampbellkeon1234 heart when I finally tell him that "It's time to have that talk". Most Importantly!!! I will not hurt myself or @malachicampbellkeon1234.
